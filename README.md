@@ -1,0 +1,1 @@
+Hello! If you are reading this you are stepping into the journey that is Bane of Divinity! Face numerous bosses, obtain weapons and step your way into the universe. The World is in your hands, it is your choice whether or not to leave it in dust..
